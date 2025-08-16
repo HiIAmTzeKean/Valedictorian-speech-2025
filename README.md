@@ -9,3 +9,11 @@ that I will be delivering. The theme of the speech is "AI is just code".
 Link to convocation 1: <https://ntulearnvideo.ntu.edu.sg/media/Convocation+2025+Ceremony+01/0_1765asif>
 
 Link to convocation 2: <https://ntulearnvideo.ntu.edu.sg/media/Convocation+2025+Ceremony+02/0_5nyii7sk>
+
+Instagram video: <https://www.instagram.com/reel/DMmboons5Od>
+
+### Other links
+
+School coverage: <https://www.instagram.com/p/DNPMeHPST_s>
+
+Gratitude message to school: <https://www.instagram.com/reel/DMPoI0ChesH>
